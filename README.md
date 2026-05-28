@@ -1,4 +1,4 @@
-i may or may not update this in the future.
+i may or may not update this in the future, it depends if it gets traction, or if i have any ideas to add or people have suggestions. 
 
 anything wrong with the program add @Gim4 on discord to tell me.
 
